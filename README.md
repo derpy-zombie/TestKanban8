@@ -1,3 +1,3 @@
 # TestKanban
 
-testing integration
+testing integrations
