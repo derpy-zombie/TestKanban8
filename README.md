@@ -9,3 +9,4 @@ Burrata maybe?
 Anyway cheese is a must
 I refuse to eat pizza without cheese
 The pizza delivery man is the living proof that not all heroes wear capes.
+All pizza are beautiful except the ones that are made as desserts with a lot of chocolate.
