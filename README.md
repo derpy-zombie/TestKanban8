@@ -15,3 +15,4 @@ And peperoni, ah peperoni, the timeless classic.
 Pizzas originally are meant to be folded and eaten as a sandwich
 The pinnacle of italian cousine, closely followed by pasta.
 Some greens like basil are acceptable on pizza but should be restrincted.
+Also it doesn't matter how delicious it is bbq pizza IS NOT ITALIAN is a monster made in USA
