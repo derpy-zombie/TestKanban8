@@ -12,3 +12,8 @@ The pizza delivery man is the living proof that not all heroes wear capes.
 All pizza are beautiful except the ones that are made as desserts with a lot of chocolate.
 I also like fungi.
 And peperoni, ah peperoni, the timeless classic.
+Pizzas originally are meant to be folded and eaten as a sandwich
+The pinnacle of italian cousine, closely followed by pasta.
+Some greens like basil are acceptable on pizza but should be restrincted.
+Also it doesn't matter how delicious it is bbq pizza IS NOT ITALIAN is a monster made in USA
+How are there people that dont like pizza.
