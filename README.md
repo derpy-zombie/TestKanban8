@@ -20,3 +20,4 @@ How are there people that dont like pizza.
 You don't pick up girls with cheesy pick up lines, you pick up girls by getting them a cheesy pizza.
 I've never seen cheddar on pizza, and I'm lowkey happy about it
 Olives are also great on pizza.
+We probably can all agree that the best cheese for pizza is the mozzarella
