@@ -17,3 +17,4 @@ The pinnacle of italian cousine, closely followed by pasta.
 Some greens like basil are acceptable on pizza but should be restrincted.
 Also it doesn't matter how delicious it is bbq pizza IS NOT ITALIAN is a monster made in USA
 How are there people that dont like pizza.
+You don't pick up girls with cheesy pick up lines, you pick up girls by getting them a cheesy pizza.
