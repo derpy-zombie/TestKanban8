@@ -23,3 +23,4 @@ Olives are also great on pizza.
 We probably can all agree that the best cheese for pizza is the mozzarella
 Italians say that stone ovens make pizzas 240% more delicious
 Telepizzas' pizzolinos are just above non-heretic.
+I've seen rectangular pizza; I'm not impressed
