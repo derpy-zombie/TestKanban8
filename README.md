@@ -19,3 +19,4 @@ Also it doesn't matter how delicious it is bbq pizza IS NOT ITALIAN is a monster
 How are there people that dont like pizza.
 You don't pick up girls with cheesy pick up lines, you pick up girls by getting them a cheesy pizza.
 I've never seen cheddar on pizza, and I'm lowkey happy about it
+Olives are also great on pizza.
