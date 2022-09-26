@@ -33,3 +33,6 @@ I might need to greet to the toto's pizza place
 Fruit on pizza?... Yeah I tried pear and it was ok it gave the pizza a sweet flavour
 Pizza is my love language.
 Actually the pizza should be folded twice
+Id love it if amazon sent me a pizza if this commit successfully enters kanbanize through aws
+I just had the worst pizza ever this weekend not only it had kebab on it. But the dough was just not ok.
+I once tried garlic pizza, the sauce was garlic based and it was made with surimi, not bad
