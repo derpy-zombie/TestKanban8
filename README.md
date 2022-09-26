@@ -38,3 +38,4 @@ I just had the worst pizza ever this weekend not only it had kebab on it. But th
 I once tried garlic pizza, the sauce was garlic based and it was made with surimi, not bad
 Now integrating from the spain account new account, new pizza (With extra olives)
 There is this one thing called the limousine in telepizza. Almost a meter long pizza.
+The day that the kanbanize integration with gitHub comes out I'm going to celebrate with pizza at toto's
