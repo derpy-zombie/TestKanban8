@@ -49,3 +49,4 @@ vscommit2
 Luan fixed his own bug, with a test pizza.
 User guide commit.
 Last hour commit
+A really loooooooooooooooooooooooooooooooooooooooooooooooooooooong commit
